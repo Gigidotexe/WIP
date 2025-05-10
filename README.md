@@ -1,1 +1,1 @@
-!(https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.prolocovignanello.org%2Feventi%2Ffesta-dell-olio-e-del-vino-novello%2Fwork-in-progress%2F&psig=AOvVaw0eWq50Y4y_J5lZlH0t-As3&ust=1746971080255000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCPDli7uFmY0DFQAAAAAdAAAAABAE)
+![WIP](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.prolocovignanello.org%2Feventi%2Ffesta-dell-olio-e-del-vino-novello%2Fwork-in-progress%2F&psig=AOvVaw0eWq50Y4y_J5lZlH0t-As3&ust=1746971080255000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCPDli7uFmY0DFQAAAAAdAAAAABAE)
