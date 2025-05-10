@@ -1,1 +1,1 @@
-![WIP](img/WIP.jpg)
+![WIP](WIP.jpg)
